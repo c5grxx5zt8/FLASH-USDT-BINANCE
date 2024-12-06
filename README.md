@@ -1,2 +1,2 @@
-# FLASH-USDT-BINANCE
-FLASH USDT🔥https://t.me/VictorPinard
+# FLASH USDT for Binance
+## 📥 Telegram PM: [@VictorPinard](https://t.me/VictorPinard)
